@@ -16,4 +16,4 @@
 
 📧 Feel free to reach out if you want to connect or discuss opportunities in the fascinating world of data analytics and civil engineering.
 
-📹 Linkedin ➡︎ [sujith](www.linkedin.com/in/sujith-naik)
+Find me on LinkedIn ➡︎ [@mochen862](https://www.linkedin.com/in/sujith-naik)
